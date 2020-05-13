@@ -5,6 +5,8 @@ here is a unicorn
 
 there is a unicorn
 
-everywhere are unicorns
+everywhere are unicorns 
 
-in stomps a dinosaur  
+in walks a brown unicorn 
+
+then in stomps a dinosaur  
